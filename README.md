@@ -11,7 +11,8 @@
         <p>19 , transmasc , AROACE<br></p>
 <p>its/itself she/her</p>
 <h2> ‎ </h2>
-<p>hi ^-^ im chloee, i consider myself new to pt, i mostly make cosplays based on my interests</p>
+<p>hi ^-^ im chloee, i consider myself new to pt, i mostly make cosplays instead of ocs</p>
+        <p>my cosplays are always based off my interests</p>
 <p>i like to drawing the most</p>
         <div>︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎</div>
       </span>
