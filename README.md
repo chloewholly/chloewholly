@@ -1,3 +1,4 @@
+<sub><i>pony.town bio</i></sub>
 <table>
   <tr>
     <td rowspan="1" width="150" valign="top" align="middle">
@@ -11,7 +12,6 @@
 <h2> ‎ </h2>
 <p>hi ^-^ im chloee, i consider myself new to pt, i mostly make cosplays based on my interests</p>
 <p>i like to drawing the most</p>
-        <p><i>i am a sfw person</i></p>
         <div>︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎</div>
       </span>
     </td>
