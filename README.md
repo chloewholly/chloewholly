@@ -3,6 +3,7 @@
   <tr>
     <td rowspan="1" width="150" valign="top" align="middle">
       <img src=https://raw.githubusercontent.com/chloewholly/i/refs/heads/main/pfp.png>
+      <p><sub>🐛💖</sub></p>
     </td>
     <td valign="top">
       <span>
