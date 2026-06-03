@@ -17,7 +17,7 @@
 <p>🎨 i like to drawing the most, i guess u could say its my number 1 hobby</p>
         <br>
         <p>🍥 if im on the boat im usually afk/making a pony or doing something in general, feel free 2 whisper though u_u</p>
-        <p>🎭 i like to rp as my interests around people who r from the same fandom, i will typically be speaking in character 50% of the time out of rps, i guess it depends lolol.. i just like play pretend lets b honest🎉🎉</p>
+        <p>🎭 nothing explicit please</p>
         <div>︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎</div>
       </span>
     </td>
