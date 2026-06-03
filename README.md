@@ -10,6 +10,7 @@
         <h1>🍥 hi im chloe︎! ^_^</h1>
         <p>19 , transmasc , AROACE<br></p>
 <p>its/itself she/her</p>
+        <sub>🧡💛🤍🩵💙</sub><sub><br></sub><sub>🩷🩵💙🩵🩷</sub>
 <h2> ‎ </h2>
 <p>hi ^-^ im chloee, i consider myself new to pt, i mostly make cosplays instead of ocs</p>
         <p>🧮 my cosplays are always based off my interests</p>
