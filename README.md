@@ -12,8 +12,10 @@
 <p>its/itself she/her</p>
 <h2> ‎ </h2>
 <p>hi ^-^ im chloee, i consider myself new to pt, i mostly make cosplays instead of ocs</p>
-        <p>my cosplays are always based off my interests</p>
-<p>i like to drawing the most</p>
+        <p>🧮 my cosplays are always based off my interests</p>
+<p>🎨 i like to drawing the most, i guess u could say its my number 1 hobby</p>
+        <br>
+        <p>🍥 if im on the boat im usually afk/making a pony or doing something in general, feel free 2 whisper though u_u</p>
         <div>︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎</div>
       </span>
     </td>
