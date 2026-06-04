@@ -7,6 +7,7 @@
     </td>
     <td valign="top">
       <span>
+        <sub>"<code>W2I</code>" IS NOT AN INVITATION FOR ERP. it is there to signal to my friends or others that i am afk and that i will be reading whispers</sub>
         <h1>🍥 hi im chloe︎! ^_^</h1>
         <p>19 , transmasc , AROACE<br></p>
 <p>its/itself she/her</p>
